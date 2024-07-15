@@ -1,0 +1,1 @@
+# Amharic-Static-Sign-Language
